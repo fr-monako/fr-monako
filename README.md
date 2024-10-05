@@ -1,2 +1,2 @@
 👋 Hi, im **fr monako**
-   + [Click here](https://example.com)
+   + [website](https://comingsoon.com)
