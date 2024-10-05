@@ -1,2 +1,2 @@
 👋 Hi, im **fr monako**
-   + [website](https://fr-monako.github.io/socials/)
+   + check out [my website](https://fr-monako.github.io/socials/)
